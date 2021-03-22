@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Akriti Agarwal.
+- 👀 I’m interested in Developing stuff.
+- 🌱 Currently upgrading to a better version of myself.
+- 💞️ Looking forward to fulfill all my dreams.
+- 📫 Email me at akriti122600@gmail.com
